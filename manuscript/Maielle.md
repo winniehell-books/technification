@@ -1,11 +1,12 @@
 # Maiélle
 
 Da war nur dieser eine Gedanke in ihrem Kopf: "Was ist denn diese flauschige Kugel in meinem Bett?"
+
 Einzelne Tropfen der Erkenntnis wurden von einer jähen Woge zurück kehrender Müdigkeit weg getragen. 
 Kurz darauf stellte Maiélle fest, dass ihr rechter Arm ihren Kopf umklammerte. Kichernd setzte sie sich auf.
 Solche harmlosen Funktionsstörungen machten ihr Spaß.
 
-Nache einem ausgiebigen Gähnen rutschte Maiélle von der Bettkante und öffnete den Wandschrank. Sie tauschte ihren Arm mit einem anderen Modell und zog sich dann an.
+Nach einem ausgiebigen Gähnen rutschte Maiélle von der Bettkante und öffnete den Wandschrank. Sie tauschte ihren Arm mit einem anderen Modell und zog sich dann an.
 
 Lanetti hatte mehrmals versucht, sie zu überreden, den fehlerhaften Replacements schlechte Bewertungen zu geben.
 Doch Maiélle hielt nichts vom Reviewsystem. Sie war der Überzeugung, dass viele Kommentare automatisiert oder von unterbezahlen Angestellten der Hersteller abgeschickt wurden.
